@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [http://premkumarg-portfolio.netlify.app](http://premkumarg-portfolio.netlify.app)
 
-- 📫 How to reach me **premkumarpremkumarg142@gmail.com**
+- 📫 How to reach me **premkumarg142@gmail.com**
 
 - ⚡ Fun fact **Who knows about me.**
 
